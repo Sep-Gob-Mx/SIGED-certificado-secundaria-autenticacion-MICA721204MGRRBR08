@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MICA721204MGRRBR08
+MICA721204MGRRBR08
